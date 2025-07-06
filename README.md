@@ -4,7 +4,7 @@
 
   Btw I am still watching Unstable, I didn't finish it yet, so please if something happens to these guys, don't spoiler!
 
- * Spyglass *
+ • ~Spyglass~ •
 
  I do not ship anyone from Unstable atm, I'd like to watch it fully before doing that, so please don't come as any ships to me
 
