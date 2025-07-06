@@ -2,7 +2,7 @@
 
   I love em so much :D 
 
-  Btw I am still watching Unstable, I didn't finish it yet, so please if something happens to these guys, don't spoiler!
+  Btw I am still watching Unstable, I didn't finish it yet, so please if something happens to these guys, no spoilers!
 
  • _Spyglass_ •
 
